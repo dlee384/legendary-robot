@@ -21,10 +21,10 @@ Using github
 
 
 ## How we will back up each other to ensure that deadlines are not missed
-
+Check the calendadr repeatly.
 
 
 ## Add any other rules that your team establishes to help each other work effectively together
-
+We communicate to resolve conflicts.
 
 
